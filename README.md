@@ -1,1 +1,1 @@
-<img src="https://media1.tenor.com/m/rC1vAt-kMCoAAAAd/line-neon.gif" width="100%">
+<img src="https://www.blackhatworld.com/media/line-neon-gif.5029/full" width="100%">
