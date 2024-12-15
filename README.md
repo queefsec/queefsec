@@ -1,1 +1,1 @@
-<img src="https://www.blackhatworld.com/media/line-neon-gif.5029/full.gif" width="100%">
+<img src="https://media.discordapp.net/attachments/1196430066092089425/1317651806876205137/image.png?ex=675f765f&is=675e24df&hm=8e79bd87d079ef9d4da8e000378a1d0b9d537c054138b9433e8724fa34ec9653&=&format=webp&quality=lossless" width="100%">
